@@ -1,5 +1,5 @@
 # How To Learn a Foreign Language _ Notes
-##[ Checked by my teacher ]
+## [ Checked by my teacher ]
 
 #### XV. Language Aptitude
 Verbal intelligence
